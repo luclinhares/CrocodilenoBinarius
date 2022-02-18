@@ -2,7 +2,7 @@
  Projeto que tem o intuito de dar visibilidade a pessoas trans.
 
 E por que esse nome? Então... 
-Meu gênero é descrito como: pessoas trans-masculina não-binaria.
+Meu gênero é: pessoa trans-masculina não-binaria.
 Já posso imaginar que se você não tem muito conhecimento sobre o assunto deve ter ficado confuso e pensado "WHF?"
 É exatamente por isso que escolhi este nome sem sentido algum. Além de crocodile ser uma pequena satira relacionada a Pandemia
 (entendedores entenderam)
