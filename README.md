@@ -4,8 +4,7 @@
 E por que esse nome? Então... 
 Meu gênero é: pessoa trans-masculina não-binaria.
 Já posso imaginar que se você não tem muito conhecimento sobre o assunto deve ter ficado confuso e pensado "WHF?"
-É exatamente por isso que escolhi este nome sem sentido algum. Além de crocodile ser uma pequena satira relacionada a Pandemia
-(entendedores entenderam)
+É exatamente por isso que escolhi este nome sem sentido algum, mas o proposito dele é maior que isso.
 
 O restante do contéudo esta sendo preparado e espero que meus estudos avancem pra que eu consiga montar esse projeto.
 
