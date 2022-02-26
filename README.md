@@ -25,5 +25,3 @@ Dicas, ajudas e sugestões são super bem vindas. Sou iniciante e quero muito cr
 Obrigade! 
 
 
-
-![bandeira-transexual](https://user-images.githubusercontent.com/99028196/154972295-b9d915c3-974b-496e-86c1-b1718e10c164.png)
